@@ -3,6 +3,7 @@
 
 
               💥         ୨୧          Katsuki           ⸝⸝
-          ⪩              ︶︶            cxh enc   
+          ⪩              ︶︶            cxh enc 
+          offtab w2i l8 resp ︶︶  mostly seen w/ jade  ⸝⸝ always iwc
 
 
