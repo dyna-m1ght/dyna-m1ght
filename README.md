@@ -6,7 +6,7 @@
 
               💥         ୨୧          Katsuki           ⸝⸝
           ⪩              ︶︶            cxh enc 
-          offtab w2i l8 resp ︶︶  mostly seen w/ jade  ⸝⸝ always iwc
+          offtab w2i l8 resp ︶︶  mostly seen w/ jade and emi ⸝⸝ always iwc
 
 
 <img width="735" height="405" alt="image" src="https://github.com/user-attachments/assets/dad59701-34da-4e8b-beb5-be18f0c0e2f6" />
